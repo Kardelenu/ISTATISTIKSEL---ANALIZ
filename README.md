@@ -1,0 +1,2 @@
+# ISTATISTIKSEL---ANALIZ
+Proje
